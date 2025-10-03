@@ -1,1 +1,4 @@
-# the-saints-power-comes-from-modern-medicine
+# The Saint’s power comes from modern medicine
+Yusung est un médecin de génie, célèbre dans le monde médical. Lui, qui a passé toute sa vie dans une salle d’opération, est mort dans un accident de la route, à son réveil, il était dans un autre monde. Mais… une sainte ? Un empire sacré ? Une magie de guérison ? « J’ai fait tant d’efforts pour apprendre la médecine, mais maintenant il suffit que je touche quelqu’un pour qu’il soit guéri ? Sérieusement, je pense que je suis devenu fou. »
+
+Jin Yoosung était un chirurgien doué, capable de ramener les morts à la vie. Cependant, même ce médecin de génie n’avait pas la capacité de se ressusciter lui-même. À la suite d’un accident de voiture mortel, Yoosung ferme les yeux pour ce qu’il croyait être la dernière fois… mais il se réveille et découvre qu’il a été ramené à la vie dans un monde imaginaire ! Médecin jusqu’au bout des ongles, Yoosung – devenu Ray – décide de redevenir guérisseur. Malheureusement, il semble que ses nouvelles capacités magiques ne soient pas les plus adaptées à la carrière de ses rêves…
